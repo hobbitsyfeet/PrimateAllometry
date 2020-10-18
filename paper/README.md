@@ -1,0 +1,1 @@
+Final Paper (Not Peer-reviewed) [https://github.com/hobbitsyfeet/PrimateAllometry/blob/main/paper/Primate_Allometry.pdf](https://github.com/hobbitsyfeet/PrimateAllometry/blob/main/paper/Primate_Allometry.pdf)
